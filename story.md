@@ -1,0 +1,3 @@
+Dummy 42 sat in the driver’s seat of a pristine, silver sedan. His hands, made of molded rubber and wire, were taped firmly to the steering wheel. Around him, the high-tech warehouse hummed with electric tension. Technicians in white coats scurried past, adjusting high-speed cameras and checking the tension on the overhead tracks.
+
+To the humans, 42 was just a bundle of sensors, steel bones, and a $100,000 price tag. They didn't know that inside his hollow chest cavity, a small spark of awareness had flared to life over a hundred impacts. He remembered every wall. He remembered the smell of burning rubber, the explosive bang of airbags, and the brief, violent flight before the seatbelt snapped him back.
